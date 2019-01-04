@@ -10,6 +10,4 @@
 
 <a href="https://www.vascohome.com/cay-tabaklari-pmk38">https://www.vascohome.com/cay-tabaklari-pmk38</a>
 
-<a href="https://www.vascohome.com/>https://www.vascohome.com/</a>
-
 <a href="https://www.vascohome.com/">vascohome</a>
